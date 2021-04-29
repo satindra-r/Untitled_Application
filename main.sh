@@ -1,1 +1,0 @@
-java -jar "Untitled_Application.jar"
