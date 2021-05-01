@@ -12,7 +12,7 @@ run in spotlight mode
 
 enjoy!
 
-Note: if you are playing this for the second time or later please refresh the page untill you get a different code for a different sub story :)
+Note: if you are playing this for the second time or later please refresh the page until you get a different code for a different sub story :)
 
 my website: https://satindrar.wixsite.com/satindrar
 _
